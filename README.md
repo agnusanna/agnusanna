@@ -11,7 +11,7 @@
 
 🌱 Interested In:
 - Web Development
-- Problem Solving
+- Public Speaking 
 - Open Source
 
 📫 Connect with me:
